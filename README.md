@@ -1,0 +1,1 @@
+# msu-tech-ping-pong-league
